@@ -1,1 +1,1 @@
-# 1C-GitHub
+# Luiz Eduardo Rodrigues Souza
